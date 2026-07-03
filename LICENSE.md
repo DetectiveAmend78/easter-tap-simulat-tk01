@@ -1,4 +1,4 @@
-# 
+# automatic Script for easter tap simulator is the best easter tap simulator Script, featuring infinite resources and auto-collect. Safe and powerful
 
 
 
